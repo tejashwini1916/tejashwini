@@ -1,3 +1,2 @@
-# tejashwini
-gdrsrdkcfrdmgteys
-osfkdnhf
+being toachive something
+ love my self
